@@ -20,7 +20,8 @@ Mouthwashing, Overwatch 2, Red Dead Redemption, and some other stuff<br/>
 Please check my Steam account if you wanna know what other games I've played<br/>
 <br/>
 I really like eletronic music but don't ask me about that cause I barely know my own name<br/>
-I listen to MSI, femtanyl, Machine Girl the most, feel free to share songs with me! I'm always looking for more<br/>
+I listen to MSI, femtanyl, Machine Girl the most<br/>
+Feel free to share songs with me! I'm always looking for more<br/>
 </p>
 
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
@@ -30,12 +31,17 @@ I listen to MSI, femtanyl, Machine Girl the most, feel free to share songs with 
 
 <img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/6/6c/Spray_Hazard_Dog_Phreak.png/revision/latest?cb=20241217173711">
 
-wawaww im adding pictures of pookies maybe and add some funny stuff idk??
+Everyone listed here is incredibely cool and smart<br/>
+<br/>
 
+[Florian](https://github.com/czernins)<br/>
+<br/>
 
-he's just like me fr --->>>
+Let me know if you want to be in this, I probably forgot to ask you or didn't know if you wanted to be added!
+
 
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
+
 
 
 
