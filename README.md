@@ -1,6 +1,6 @@
 <img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/25/Spray_Hazard_Maisie%27s_Treat.png/revision/latest?cb=20241217173741">
 
-###    Swatch/Hixy<br/>
+###    <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"> Swatch/Hixy <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"><br/>
    she/they . . born in '06 <br/>
    often off-tab, I might miss messages <br/>
    C + H always!! I love when people sit w/me! <br/>
@@ -98,3 +98,4 @@ Here's blinkies I would use if I was a divorced and re-married christian america
 <img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/191/191169cu53u3tomz.jpg"> 
 <img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/272/272375zhbjwhhpe2.gif"> 
 
+ 
