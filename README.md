@@ -7,7 +7,7 @@
 
 
 <sub>            Now playing:</sub><br/> 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=969696&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=969696&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&redirect=true)
 
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
 
