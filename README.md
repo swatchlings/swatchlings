@@ -2,8 +2,8 @@
 
 ###    Swatch/Hixy<br/>
    she/they . . born in '06 <br/>
-   wawawa <br/>
-   wawawa <br/>
+   often off-tab, I might miss messages <br/>
+   C + H always!! I love when people sit w/me! <br/>
 
 
 <sub>            Now playing:</sub><br/> 
@@ -96,5 +96,5 @@ Here's blinkies I would use if I was a divorced and re-married christian america
 <img align="center" width="150" height="20" src="https://i2.glitter-graphics.org/pub/223/223752ejeqwyk16w.gif"> 
 <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/419/419076v3ioclb7jo.gif"> 
 <img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/191/191169cu53u3tomz.jpg"> 
-<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/1970/1970393yxrjke9g36.gif"> 
+<img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/272/272375zhbjwhhpe2.gif"> 
 
