@@ -1,4 +1,4 @@
-<img align="right" width="300" height="300" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/25/Spray_Hazard_Maisie%27s_Treat.png/revision/latest?cb=20241217173741">
+<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/25/Spray_Hazard_Maisie%27s_Treat.png/revision/latest?cb=20241217173741">
 
    Swatch/Hixy<br/>
    she/they<br/>
@@ -15,7 +15,7 @@ wawawa <br/>
 
 <p align="center">Current interests:</p><br/>
 
-<img align="left" width="300" height="300" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/9/9c/Spray_Hazard_Puppy_Chow.png/revision/latest?cb=20241217173816">
+<img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/9/9c/Spray_Hazard_Puppy_Chow.png/revision/latest?cb=20241217173816">
 <p align="right">
 Mouthwashing, Overwatch 2, wawawawawa
 </p>
@@ -33,7 +33,7 @@ Mouthwashing, Overwatch 2, wawawawawa
 
 <p align="center">Pookies:</p><br/>
 
-<img align="right" width="300" height="300" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/6/6c/Spray_Hazard_Dog_Phreak.png/revision/latest?cb=20241217173711">
+<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/6/6c/Spray_Hazard_Dog_Phreak.png/revision/latest?cb=20241217173711">
 
 wawaww im adding pictures of pookies maybe and add some funny stuff idk??
 
