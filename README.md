@@ -66,15 +66,12 @@ he's just like me fr --->>>
 <img align="center" width="150" height="20" src="https://mothcpu.net/blinkies/internet%20blinkie.gif"> 
 <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/456/456636y6irlp4fwp.gif"> 
 
-Here's blinkies I would use if I was a divorced christian american mother with 2 kids and more on the way:
+Here's blinkies I would use if I was a divorced and re-married christian american mother with 2 kids and more on the way:
 
 <img align="center" width="150" height="20" src="https://dl.glitter-graphics.com/pub/3741/3741855ldko3yg09y.gif"> <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/284/284546rlq6a5tl1k.gif"> 
 <img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/1560/1560445tans96u9gg.gif"> 
 <img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/576/576923qi5jf0rjba.gif"> 
-<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/349/349300i5a6rbippv.gif"> 
 <img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/37/37370g89xeibxiz.gif"> 
-<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/1440/1440417pdo9te0joe.gif"> 
-<img align="center" width="150" height="20" src="https://dl.glitter-graphics.com/pub/3741/3741442mbjnjvjj1p.gif"> 
 <img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/1557/1557587xtwvs3i45q.gif"> 
 <img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/969/969829gaveaogrm8.gif"> 
 <img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/478/478543vhxazj9iwr.gif"> 
