@@ -66,3 +66,41 @@ he's just like me fr --->>>
 <img align="center" width="150" height="20" src="https://mothcpu.net/blinkies/internet%20blinkie.gif"> 
 <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/456/456636y6irlp4fwp.gif"> 
 
+Here's blinkies I would use if I was a divorced christian american mother with 2 kids and more on the way:
+
+<img align="center" width="150" height="20" src="https://dl.glitter-graphics.com/pub/3741/3741855ldko3yg09y.gif"> <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/284/284546rlq6a5tl1k.gif"> 
+<img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/1560/1560445tans96u9gg.gif"> 
+<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/576/576923qi5jf0rjba.gif"> 
+<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/349/349300i5a6rbippv.gif"> 
+<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/37/37370g89xeibxiz.gif"> 
+<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/1440/1440417pdo9te0joe.gif"> 
+<img align="center" width="150" height="20" src="https://dl.glitter-graphics.com/pub/3741/3741442mbjnjvjj1p.gif"> 
+<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/1557/1557587xtwvs3i45q.gif"> 
+<img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/969/969829gaveaogrm8.gif"> 
+<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/478/478543vhxazj9iwr.gif"> 
+<img align="center" width="150" height="20" src="https://i1.glitter-graphics.org/pub/910/910911f3iy1yu809.gif"> 
+<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/321/321090by0st99orn.gif"> 
+<img align="center" width="150" height="20" src="https://i1.glitter-graphics.org/pub/223/223961vdl4q7a28b.gif"> 
+<img align="center" width="150" height="20" src="https://i1.glitter-graphics.org/pub/367/367281ta7nv6s8pu.gif"> 
+<img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/1576/1576056p5z1aqiy56.gif"> 
+<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/538/538220xdalxip51g.gif"> 
+<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/595/595787il9vztypfx.gif"> 
+<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/596/596333vk0dp0kthd.gif"> 
+<img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/912/912780xlb667nkj6.gif"> 
+<img align="center" width="150" height="20" src="https://i2.glitter-graphics.org/pub/148/148992cobpddgrnj.gif"> 
+<img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/37/37365bcqgh289pm.gif"> 
+<img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/284/284319m5kwwq7h7u.gif"> 
+<img align="center" width="150" height="20" src="https://i8.glitter-graphics.org/pub/1196/1196038naaod21897.gif"> 
+<img align="center" width="150" height="20" src="https://i8.glitter-graphics.org/pub/313/313728fnzgaxhoiu.gif"> 
+<img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/1268/1268899urnb66mucl.gif"> 
+<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/1560/1560453ccp39smdkj.gif"> 
+<img align="center" width="150" height="20" src="https://i8.glitter-graphics.org/pub/993/993008que5eyzzus.gif"> 
+<img align="center" width="150" height="20" src="https://i8.glitter-graphics.org/pub/1510/1510978ikvu4ld1xd.gif"> 
+<img align="center" width="150" height="20" src="https://dl.glitter-graphics.com/pub/3537/3537838a7wzcrp7om.gif"> 
+<img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/478/478546atpmy53adt.gif"> 
+<img align="center" width="150" height="20" src="https://i2.glitter-graphics.org/pub/223/223752ejeqwyk16w.gif"> 
+<img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/419/419076v3ioclb7jo.gif"> 
+<img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/191/191169cu53u3tomz.jpg"> 
+<img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/1970/1970393yxrjke9g36.gif"> 
+<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/944/944607li4icvopxm.gif"> 
+
