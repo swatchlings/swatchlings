@@ -79,7 +79,6 @@ Here's blinkies I would use if I was a divorced and re-married christian america
 <img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/321/321090by0st99orn.gif"> 
 <img align="center" width="150" height="20" src="https://i1.glitter-graphics.org/pub/223/223961vdl4q7a28b.gif"> 
 <img align="center" width="150" height="20" src="https://i1.glitter-graphics.org/pub/367/367281ta7nv6s8pu.gif"> 
-<img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/1576/1576056p5z1aqiy56.gif"> 
 <img align="center" width="150" height="20" src="https://i10.glitter-graphics.org/pub/538/538220xdalxip51g.gif"> 
 <img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/595/595787il9vztypfx.gif"> 
 <img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/596/596333vk0dp0kthd.gif"> 
@@ -99,5 +98,4 @@ Here's blinkies I would use if I was a divorced and re-married christian america
 <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/419/419076v3ioclb7jo.gif"> 
 <img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/191/191169cu53u3tomz.jpg"> 
 <img align="center" width="150" height="20" src="https://i3.glitter-graphics.org/pub/1970/1970393yxrjke9g36.gif"> 
-<img align="center" width="150" height="20" src="https://i7.glitter-graphics.org/pub/944/944607li4icvopxm.gif"> 
 
