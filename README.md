@@ -16,7 +16,10 @@
 
 <img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/9/9c/Spray_Hazard_Puppy_Chow.png/revision/latest?cb=20241217173816">
 <p align="right">
-Mouthwashing, Overwatch 2, wawawawawa
+Mouthwashing, Overwatch 2, Red Dead Redemption, uhhhh some other stuff<br/>
+Please check [my Steam account](https://steamcommunity.com/id/swatchlings/) if you wanna know what other games I've played<br/>
+I really like eletronic music but don't ask me about that cause I barely know my own name<br/>
+Ask me about MSI though... I'm a huge fan<br/>
 </p>
 
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
