@@ -19,7 +19,7 @@
 Mouthwashing, Overwatch 2, Red Dead Redemption, and some other stuff<br/>
 Please check my Steam account if you wanna know what other games I've played<br/>
 <br/>
-I really like eletronic music but don't ask me about that cause I barely know my own name<br/>
+I really like electronic music but don't ask me about that cause I barely know my own name<br/>
 I listen to MSI, femtanyl, Machine Girl the most<br/>
 Feel free to share songs with me! I'm always looking for more<br/>
 </p>
