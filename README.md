@@ -16,7 +16,7 @@
 
 <img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/9/9c/Spray_Hazard_Puppy_Chow.png/revision/latest?cb=20241217173816">
 <p align="right">
-Mouthwashing, Overwatch 2, Red Dead Redemption, Ace Attorney, Portal 2 and some other stuff <br/>
+Mouthwashing, Overwatch 2, Red Dead Redemption, Ace Attorney, Portal 2 and a lot of other games <br/>
  
 Please check [my Steam account](https://steamcommunity.com/id/swatchlings/) if you wanna know what other games I've played!! <br/>
 <br/>
@@ -34,7 +34,7 @@ Feel free to share songs with me! I'm always looking for more<br/>
 
 <img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/6/6c/Spray_Hazard_Dog_Phreak.png/revision/latest?cb=20241217173711">
 
-Everyone listed here is incredibely cool and smart<br/>
+Everyone listed here is incredibly cool and smart<br/>
 <br/>
 
 [Florian](https://github.com/czernins) . . Valentine . . [Tungsten](https://github.com/RogueAIs) . . Sully<br/>
