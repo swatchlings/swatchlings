@@ -37,7 +37,7 @@ Feel free to share songs with me! I'm always looking for more<br/>
 Everyone listed here is incredibly cool and smart<br/>
 <br/>
 
-[Florian](https://github.com/czernins) . . Valentine . . [Tungsten](https://github.com/RogueAIs) . . Sully<br/>
+[Florian](https://github.com/czernins) . . Valentine . . [Tungsten](https://github.com/RogueAIs) . . [Sully](https://github.com/S1llySully)<br/>
 <br/>
 
 Let me know if you want to be in this, I probably forgot to ask you or didn't know if you wanted to be added!
