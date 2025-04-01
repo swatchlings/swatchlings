@@ -11,4 +11,4 @@ for me to copy-paste:
 
 <img alt="Polle Says: Don't Be Daft!" align="center" width="150" height="20" src="https://files.catbox.moe/g7qwi2.gif">
 <img alt="Lesbian flag: old men lover" align="center" width="150" height="20" src="https://files.catbox.moe/bhaxhm.gif">
-
+<img alt="A-Mei-zing!" align="center" width="150" height="20" src="https://files.catbox.moe/vn2s9z.gif">
