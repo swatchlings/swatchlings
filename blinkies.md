@@ -1,6 +1,6 @@
 Hello!! These are all blinkies that I made myself, feel free to use them no credit needed! (even though I'd appreciate it if you could link back to this repository or the [catbox archive](https://catbox.moe/c/3mfsp8))
 
-**I'm open to requests!!** I love making blinkies but I never know what to make so if you want to contact me you can do so on discord: @swatchlings
+**I'm open to requests!!** I love making blinkies but I never know what to make so if you want to contact me you can do so on discord: [@swatchlings](https://discordid.netlify.app/?id=979617400079126559)
 
 
 #### Music blinkies:
