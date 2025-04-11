@@ -46,9 +46,6 @@ Let me know if you want to be in this, I probably forgot to ask you or didn't kn
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
 
 
-
-
-
 <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/tumblr_static_5h66wf2omuosk4g44844kk4c0.gif"> <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/newbatch/A4JMkfi.gif"> 
 <img align="center" width="150" height="20" src="https://blinkiecollecti0n.neocities.org/images/stillyou.gif"> 
 <img align="center" width="150" height="20" src="https://adriansblinkiecollection.neocities.org/b/mousebites.gif"> 
@@ -111,4 +108,7 @@ Here's blinkies I would use if I was a divorced and re-married christian america
 <img align="center" width="150" height="20" src="https://i9.glitter-graphics.org/pub/191/191169cu53u3tomz.jpg"> 
 <img align="center" width="150" height="20" src="https://i5.glitter-graphics.org/pub/272/272375zhbjwhhpe2.gif"> 
 
- 
+
+<sub><sup>
+pstttt... I also make [blinkies](blinkies.md) sometimes, don't tell anyone
+</sup></sub>
