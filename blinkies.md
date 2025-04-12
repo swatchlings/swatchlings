@@ -22,7 +22,7 @@ Hello!! These are all blinkies that I made myself, feel free to use them no cred
 
 <img alt="MG, get your ass2mars" align="center" width="150" height="20" src="https://files.catbox.moe/o01wsl.gif"> <img alt="MG, wlfgrl" align="center" width="150" height="20" src="https://files.catbox.moe/43gsyx.gif">
 
-<img alt="Femtanyl, Nastywerkkkk!" align="center" width="150" height="20" src="https://files.catbox.moe/rbjncm.gif"> <img alt="Femtanyl, Girl Hell 1999" align="center" width="150" height="20" src="https://files.catbox.moe/j6i0g9.gif">
+<img alt="Femtanyl, Nastywerkkkk!" align="center" width="150" height="20" src="https://files.catbox.moe/928uys.gif"> <img alt="Femtanyl, Girl Hell 1999" align="center" width="150" height="20" src="https://files.catbox.moe/j6i0g9.gif">
 
 
 #### Misc blinkies:
