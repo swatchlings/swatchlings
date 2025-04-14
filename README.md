@@ -8,6 +8,14 @@
 
 <sub>            Now playing:</sub><br/> 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=969696&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=grinningtea7&redirect=true)
+<br/>
+<a href="https://github.com/swatchlings/swatchlings/blob/main/blinkies.md">
+<img alt="Femtanyl, Girl Hell 1999" align="center" width="150" height="20" src="https://files.catbox.moe/j6i0g9.gif">
+</a>
+<a href="https://github.com/swatchlings/swatchlings/blob/main/blinkies.md">
+<img alt="MSI, FGWSSS 1" align="center" width="150" height="20" src="https://files.catbox.moe/hsdtss.gif">
+</a>
+
 
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
 
