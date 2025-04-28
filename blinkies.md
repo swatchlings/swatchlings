@@ -24,6 +24,8 @@ Hello!! These are all blinkies that I made myself, feel free to use them no cred
 
 <img alt="Femtanyl, Nastywerkkkk!" align="center" width="150" height="20" src="https://files.catbox.moe/928uys.gif"> <img alt="Femtanyl, Girl Hell 1999" align="center" width="150" height="20" src="https://files.catbox.moe/j6i0g9.gif">
 
+<img alt="TVGirl, TakingWhat'sNotYours1" align="center" width="150" height="20" src="https://files.catbox.moe/k0kt2w.gif"> <img alt="TVGirl, TakingWhat'sNotYours2" align="center" width="150" height="20" src="https://files.catbox.moe/42582f.gif"> 
+
 
 #### Misc blinkies:
 
