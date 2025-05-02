@@ -1,4 +1,4 @@
-<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/25/Spray_Hazard_Maisie%27s_Treat.png/revision/latest?cb=20241217173741">
+<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/2d/Spray_Brigitte_Armored_Lion.png/revision/latest?cb=20181017135255">
 
 ###    <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"> Swatch/Hixy <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"><br/>
    she/they . . born in '06 <br/>
@@ -22,7 +22,7 @@
 
 ### <p align="center">Current interests:</p><br/>
 
-<img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/9/9c/Spray_Hazard_Puppy_Chow.png/revision/latest?cb=20241217173816">
+<img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/3/3f/Spray_Brigitte_Dessert.png/revision/latest?cb=20181017135400">
 <p align="right">
 Mouthwashing, Overwatch 2, Red Dead Redemption, Ace Attorney, Portal 2 and a lot of other games <br/>
  
@@ -40,7 +40,7 @@ Feel free to share songs with me! I'm always looking for more<br/>
 
 ### <p align="center">Pookies:</p><br/>
 
-<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/6/6c/Spray_Hazard_Dog_Phreak.png/revision/latest?cb=20241217173711">
+<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/e/ef/Spray_Brigitte_Cat_Person.png/revision/latest?cb=20181017135314">
 
 Everyone listed here is incredibly cool and smart<br/>
 <br/>
