@@ -31,7 +31,7 @@
 
 <img align="left" src="https://files.catbox.moe/s16hn9.gif">
 
-### <p align="center"> Current interests:  ˗ˏˋ <img width="25" height="25" src="https://files.catbox.moe/jb85av.gif"></p><br/>
+### <p align="center">Current interests:  ˗ˏˋ <img width="25" height="25" src="https://files.catbox.moe/jb85av.gif"></p><br/>
 
 
 
@@ -53,7 +53,7 @@ If you want to see what other games I play you can check my Steam profile or jus
 
 <img align="right" src="https://files.catbox.moe/q97hna.gif">
 
-### <p align="center"> <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Pookies:  </p><br/>
+### <p align="center"> <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Pookies:</p><br/>
 
 
 
