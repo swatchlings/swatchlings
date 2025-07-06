@@ -73,7 +73,7 @@ If you're in my [Deltarune Discord server](https://discord.gg/uS3rrKZxX7) you're
 
 
 
-
+<p align="center">
 <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/tumblr_static_5h66wf2omuosk4g44844kk4c0.gif"> <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/newbatch/A4JMkfi.gif"> 
 <img align="center" width="150" height="20" src="https://blinkiecollecti0n.neocities.org/images/stillyou.gif"> 
 <img align="center" width="150" height="20" src="https://adriansblinkiecollection.neocities.org/b/mousebites.gif"> 
@@ -103,7 +103,7 @@ If you're in my [Deltarune Discord server](https://discord.gg/uS3rrKZxX7) you're
 <img align="center" width="150" height="20" src="https://blinkie-net.neocities.org/blinkies/8/gamer.gif"> 
 <img align="center" width="150" height="20" src="https://mothcpu.net/blinkies/internet%20blinkie.gif"> 
 <img align="center" width="150" height="20" src="https://i6.glitter-graphics.org/pub/456/456636y6irlp4fwp.gif"> 
-
+</p>
 
 <sub><sup>
 pstttt... I also make [blinkies](blinkies.md) sometimes, don't tell anyone
