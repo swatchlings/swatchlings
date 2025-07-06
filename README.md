@@ -36,11 +36,10 @@
 
 
 <p align="right">
-
- If you want to see what other games I play you can check my  <a href="https://steamcommunity.com/id/swatchlings/"> Steam profile </a> and maybe send me a friend request too
-
+My current interests (or all time favorites) are Undertale/Deltarune, Portal, Ace Attorney, Red Dead Redemption, Overwatch, Mouthwashing, and way too many others to simply list them here
+I'm always open to talk about things i enjoy so don't be shy!
+If you want to see what other games I play you can check my Steam profile or just ask me directly
 </p>
-
 
 
 
@@ -65,6 +64,7 @@ Everyone listed here is incredibly cool and smart<br/>
 <br/>
 
 If you're in my [Deltarune Discord server](https://discord.gg/uS3rrKZxX7) you're also considered my pookie :]
+ 
 
 
 <p align="center">
