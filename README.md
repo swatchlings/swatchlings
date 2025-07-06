@@ -27,7 +27,7 @@
 </a>
 
 
-<img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
+<img align="center" width="1000" height="5" src="https://files.catbox.moe/08qv8b.gif">
 
 
 ### <p align="center"> Current interests:  ˗ˏˋ <img width="25" height="25" src="https://files.catbox.moe/jb85av.gif"></p><br/>
@@ -45,7 +45,7 @@ I listen to MSI, femtanyl, Machine Girl the most<br/>
 Feel free to share songs with me! I'm always looking for more<br/>
 </p>
 
-<img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
+<img align="center" width="1000" height="5" src="https://files.catbox.moe/08qv8b.gif">
 
 
 ### <p align="center"> <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Pookies:  </p><br/>
@@ -61,7 +61,7 @@ Everyone listed here is incredibly cool and smart<br/>
 Let me know if you want to be in this, I probably forgot to ask you or didn't know if you wanted to be added!
 
 
-<img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
+<img align="center" width="1000" height="5" src="https://files.catbox.moe/08qv8b.gif">
 
 
 <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/tumblr_static_5h66wf2omuosk4g44844kk4c0.gif"> <img align="center" width="150" height="20" src="https://y2k.neocities.org/blinkiez/newbatch/A4JMkfi.gif"> 
