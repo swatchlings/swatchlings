@@ -1,4 +1,4 @@
-<img align="center" width="400" height="130" src="https://files.catbox.moe/e8958g.gif"><img align="center" width="400" height="130" src="https://files.catbox.moe/e8958g.gif">
+<img align="center" width="860" height="140" src="https://files.catbox.moe/55qs0b.gif">
 
 
 
