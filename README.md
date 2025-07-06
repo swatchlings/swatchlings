@@ -1,6 +1,16 @@
-<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/2/2d/Spray_Brigitte_Armored_Lion.png/revision/latest?cb=20181017135255">
+<img align="center" width="430" height="140" src="https://files.catbox.moe/e8958g.gif"><img align="center" width="430" height="140" src="https://files.catbox.moe/e8958g.gif">
 
-###    <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"> Swatch/Hixy <img width="15" height="15" src="https://gifcity.carrd.co/assets/images/gallery289/68f4ce05.gif?v=e3c0bc0f"><br/>
+
+
+
+
+
+
+
+
+<img align="right" src="https://files.catbox.moe/ighw5v.gif">
+
+###   <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Swatch (or Hixy)<br/>
    she/they . . born in '06 <br/>
    often off-tab, I might miss messages <br/>
    C + H always!! I love when people sit w/me! <br/>
@@ -20,9 +30,9 @@
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
 
 
-### <p align="center">Current interests:</p><br/>
+### <p align="center"> Current interests:  ˗ˏˋ <img width="25" height="25" src="https://files.catbox.moe/jb85av.gif"></p><br/>
 
-<img align="left" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/3/3f/Spray_Brigitte_Dessert.png/revision/latest?cb=20181017135400">
+<img align="left" src="https://files.catbox.moe/s16hn9.gif">
 <p align="right">
 Mouthwashing, Overwatch 2, Red Dead Redemption, Ace Attorney, Portal 2 and a lot of other games <br/>
  
@@ -38,9 +48,9 @@ Feel free to share songs with me! I'm always looking for more<br/>
 <img align="center" width="1000" height="10" src="https://gifcity.carrd.co/assets/images/gallery48/eea55b7e.gif?v=e3c0bc0f">
 
 
-### <p align="center">Pookies:</p><br/>
+### <p align="center"> <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Pookies:  </p><br/>
 
-<img align="right" width="250" height="250" src="https://static.wikia.nocookie.net/overwatch_gamepedia/images/e/ef/Spray_Brigitte_Cat_Person.png/revision/latest?cb=20181017135314">
+<img align="right" src="https://files.catbox.moe/q97hna.gif">
 
 Everyone listed here is incredibly cool and smart<br/>
 <br/>
