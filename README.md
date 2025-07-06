@@ -44,7 +44,7 @@ If you want to see what other games I play you can check my Steam profile or jus
 
 
 
-<p align="center">
+<br/><p align="center">
   <img width="1000" height="5" src="https://files.catbox.moe/8znwnm.png">
 </p>
 
@@ -54,18 +54,18 @@ If you want to see what other games I play you can check my Steam profile or jus
 <img align="right" src="https://files.catbox.moe/q97hna.gif">
 
 ### <p align="center"> <img width="25" height="25" src="https://files.catbox.moe/kljzhs.gif"> ˎˊ˗  Pookies:</p><br/>
-
-
-
 Everyone listed here is incredibly cool and smart<br/>
 <br/>
 
 [Florian](https://github.com/czernins) — [Valentine](https://github.com/v4lentinesday) — [Tungsten](https://github.com/RogueAIs) — [Sully](https://github.com/S1llySully)<br/>
 <br/>
 
-If you're in my [Deltarune Discord server](https://discord.gg/uS3rrKZxX7) you're also considered my pookie :]
- 
+If you're in my [Deltarune Discord server](https://discord.gg/uS3rrKZxX7) you're also considered my pookie :]<br/>
 
+<sub>
+⇧⇧⇧ Please join, we need more europeans... ⇧⇧⇧
+</sup><br/>
+<br/>
 
 <p align="center">
   <img width="1000" height="5" src="https://files.catbox.moe/8znwnm.png">
